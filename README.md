@@ -1,0 +1,1 @@
+# Šoedien ir piektdiena
